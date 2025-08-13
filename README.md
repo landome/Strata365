@@ -1,1 +1,1 @@
-# Strat365
+# Strata365
